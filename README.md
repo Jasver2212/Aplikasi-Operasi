@@ -1,2 +1,1 @@
 # Aplikasi-Operasi
-# Aplikasi-Operasi
